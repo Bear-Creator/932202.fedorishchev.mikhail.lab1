@@ -1,1 +1,0 @@
-# 932202.fedorishchev.mikhail.lab1
